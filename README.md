@@ -1,3 +1,3 @@
 # for-paul
 
-![paul14-e1549560007363](https://github.com/user-attachments/assets/5d7d0b6b-ef08-4f65-ac6c-fa1b8f13df9b)
+<a href="http://www.github.com/ahmettzorlutuna"><img src="[https://github-readme-stats.vercel.app/api?username=ahmettzorlutuna&show_icons=true&theme=dracula](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.arabam.com%2Fblog%2Fotomobille-yasam%2Fpaul-walker-kimdir-hakkinda-bilinmeyenler%2F&psig=AOvVaw1N1AYjRMy3B26K7SoWrDy0&ust=1744397153038000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCOCZufePzowDFQAAAAAdAAAAABAE)" /></a>
